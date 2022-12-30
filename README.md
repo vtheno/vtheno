@@ -1,5 +1,5 @@
 ### Hi there 👋
-- I will leaving here. Goodbye~ Github.
+- Dududu~Biu~Biu~biu
 <!--
 **vtheno/vtheno** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
